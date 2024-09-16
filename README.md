@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://vishnuswmech.wordpress.com/](https://vishnuswmech.wordpress.com/)
 
-- 💬 Ask me about **Linux, Docker, Kubernetes, Jenkins, Python, Shell script**
+- 💬 Ask me about **Linux, Docker, Kubernetes, Jenkins, Python, and Shell script**
 
 - 📫 How to reach me **vishnuanand97udt@gmail.com**
 
