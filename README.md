@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vishnuanand97udt@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/112UoLCMh-rHBXTZhjncYml8x1Z95iFBJ/edit?usp=drive_link&ouid=106619186133055596503&rtpof=true&sd=true](https://docs.google.com/document/d/112UoLCMh-rHBXTZhjncYml8x1Z95iFBJ/edit?usp=drive_link&ouid=106619186133055596503&rtpof=true&sd=true)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1pEN-gIiGyzm2TiYWkrfx34YYXpQy1vDd/edit?usp=sharing&ouid=106619186133055596503&rtpof=true&sd=true](My Resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
